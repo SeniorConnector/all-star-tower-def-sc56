@@ -1,4 +1,4 @@
-
+stealth all star tower defense Script is the best all star tower defense Script, featuring one-hit kill and god mode. Safe and powerful for all your
 
 
 
